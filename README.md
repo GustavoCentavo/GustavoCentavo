@@ -9,6 +9,6 @@ Meu nome é Gustavo Marques
   ### você entar em contato comigo
   📫 mizael.gustavo@escola.pr.gov.br
   
-   -@gustavo_marques009
+   insta @gustavo_marques009
 
 ![](https://media1.tenor.com/m/WWuKr0zRdGYAAAAC/messi.gif)
